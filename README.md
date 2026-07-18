@@ -4,7 +4,7 @@
 ((art was made by me ! ))
 
 
-
+<profileveiws/>
 • Doubles or bobette yumes intwc if you are so on so 'nonsharing' or thing your the 'ony' bobette. others int freely !
 
 • idm C+H or int , i widly inncorage it ! even if im offtab <33
