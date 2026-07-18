@@ -23,5 +23,3 @@
 
 • QWEL SUPPORTERS / DEFENDERS DNI AT ALL COSTTTTTT.
 
-<img width="736" height="736" alt="7b9125d1fe412497ac1f55a1fe2db1f5" src="https://github.com/user-attachments/assets/4b5c8500-8052-4a4b-a89a-23c7511df2f1" />
- (this art isnt mine . it belongs to my fav artist https://www.pinterest.com/org4nn/ on pintrest !
