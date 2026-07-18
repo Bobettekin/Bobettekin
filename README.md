@@ -9,7 +9,7 @@
 
 ((art was made by me ! ))
 
-• Doubles or bobette yumes intwc if you are so on so 'nonsharing' or thing your the 'ony' bobette. others int freely !
+• Bobette Doubles int frelly !! (i love u guys ^^) selctive sharing or nonshaing bobette kins (dni . or intwec.)
 
 • idm C+H or int , i widly inncorage it ! even if im offtab <33
 
@@ -23,4 +23,5 @@
 
 • QWEL SUPPORTERS / DEFENDERS DNI AT ALL COSTTTTTT.
 
+•intwc, i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
 
