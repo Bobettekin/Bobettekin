@@ -8,7 +8,7 @@
 
 
 
-((art was made by me ! ))
+
 
 •intwc, i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
 
