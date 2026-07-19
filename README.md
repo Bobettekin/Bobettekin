@@ -18,11 +18,11 @@
 
 • I like talking alot, i can mostly tak abt about anything and evrything .
 
-• dyle yume ! idm doubles, int anytime !  
-
 • any ship can int btw i don't mind what or any kind yo have  !!
 
 • im am offtab offten. whispering me to grab my attention may be a better opption.
 
 • QWEL SUPPORTERS / DEFENDERS DNI AT ALL COSTTTTTT.
 
+
+if seeing me, (another bobette kin) other than MsCarolynne at spawn point angers you or even makes you uncomfortable in any sorta way possible. im really sorry, i never wanted to look like the "better bobette" there. im not even at spawn point often i'm only around there because my friends are. (im not the past at apologising but I hope you guys somewhat understand this.
