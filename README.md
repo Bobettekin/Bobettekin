@@ -18,7 +18,7 @@
 
 • I like talking alot, i can mostly tak abt about anything and evrything .
 
-• any ship can int btw i don't mind what or any kind yo have  !!
+𓏴𓏴  HUGE looey yume ! idm doubles 
 
 • im am offtab offten. whispering me to grab my attention may be a better opption.
 
