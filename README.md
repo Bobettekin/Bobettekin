@@ -4,7 +4,7 @@
 
 
 
-   ![](https://komarev.com/ghpvc/?username=bobettekin&color=dc143c)
+   ![](https://komarev.com/ghpvc/?username=bobettekin&color=dc1434)
 
 
 
