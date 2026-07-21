@@ -18,7 +18,7 @@
 
 • I like talking alot, i can mostly tak abt about anything and evrything .
 
-𓏴𓏴  HUGE looey yume ! idm doubles (btw allways beena dyle and looey yume brah, I ony changed it to looey bc I didnt want to seem like a copy . ) 😭✌️
+𓏴𓏴  HUGE looey yume ! idm doubles (btw allways beena dyle and looey yume brah, I ony changed it to looey bc I like bobette x looey before i did dyle x bobette . ) 😭✌️
 
 • im am offtab offten. whispering me to grab my attention may be a better opption.
 
