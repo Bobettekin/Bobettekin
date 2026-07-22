@@ -12,7 +12,7 @@
 
 •intwc, i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
 
-• Bobette Doubles int frelly !! (i love u guys ^^) selctive sharing or nonshaing bobette kins ( intwec.)
+• Bobette Doubles int frelly !! 
 
 • idm C+H or int , i widly inncorage it ! even if im offtab <33
 
